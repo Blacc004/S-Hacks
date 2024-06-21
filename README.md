@@ -8,5 +8,3 @@
 - Compatible with all mobile devices and with a beautiful and pleasant user interface.
 
 💙 Send me a message If you like this. [BLACC](onanugaemmanuel004@gmail.com, whatsapp; 09077738630)
-
-![preview img](/preview.png)
